@@ -1,16 +1,19 @@
-## Hi there 👋
+![giphy](https://github.com/Maplleshade/Maplleshade/assets/170375864/4864499c-a962-4694-a5c0-fc8f320aee3b)![giphy](https://github.com/Maplleshade/Maplleshade/assets/170375864/fc4fe57e-6375-496f-8c58-5fc0918c26e5)
 
-<!--
-**Maplleshade/Maplleshade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h1 align="center">hi, im brooklyn</h1>
+<h3 align="center">just another pony</h3>
 
-Here are some ideas to get you started:
+- my username is usually Tensionst in the games that i play (not Tensionist, which is usually my wife) [.](.)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- don't be afraid to chat with me or say hello, most the time im looking for people to chat with :) **.**
+
+- i like pjsk, vocaloid, touhou, sonic, rhythm games, a silent voice, some other stuff too [.](.)
+
+- my pronouns are she/her, they/them is ok, go here for more info (https://en.pronouns.page/@fucelnut) [.](.)
+
+- im a lonely soul **.**
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+</p>
+
